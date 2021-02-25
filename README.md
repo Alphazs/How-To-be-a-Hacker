@@ -13,3 +13,6 @@ then re real question is, how to be one...
 well u cant, u just read this for no fucking reason nice one, just know how to code and watch a video or something, im not ur guy
 
 well i hope u find this helpfull and if u did dm me on discord for any problems on the tutorial ALPHA#1337
+
+
+:3
