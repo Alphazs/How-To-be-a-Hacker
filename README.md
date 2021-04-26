@@ -15,4 +15,4 @@ well u cant, u just read this for no fucking reason nice one, just know how to c
 well i hope u find this helpfull and if u did dm me on discord for any problems on the tutorial ALPHA#1337
 
 
-:3
+:D
